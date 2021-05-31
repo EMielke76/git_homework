@@ -5,4 +5,8 @@ Takeaways
 
 Commitments Moving Forward
 1. Setting a  20min timer on my Google searching so I do not fall down a search rabbit hole, blink, and find 2hrs of my day gone.
-2. Using that same timer to keep track of the time I spend trouble-shooting a problem. 20min chunks before either walking away from the problem for 5min, or asking for help, depending on whether or not I felt like I was making any progress on the issue at hand. 
+
+2. Using that same timer to keep track of the time I spend trouble-shooting a problem. 20min chunks before either walking away from the problem for 5min, or asking for help, depending on whether or not I felt like I was making any progress on the issue at hand.
+
+Shoutout
+1. My partner Blair has been a constant rock through the years, and continues to do so for me now as I begin this endeavor. Despite working her own crazy schedule, she still finds time to check in on me, ask me how school and my Mod-1 Prework is going. She takes a genuine interest in what I'm doing, makes me feel seen and loved...tackling this program without her would be a very, very different experience.
